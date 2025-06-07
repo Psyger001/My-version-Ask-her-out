@@ -1,1 +1,1 @@
-kani sa lang!
+kani sa lang
